@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **howardphan99@gmail.com**
 
-- 📄 Know about my experiences [Click here]((https://drive.google.com/file/d/1X2NabKfsp_FzML5wzoRnhprS0sfY6Prz/view?usp=drive_link))
+- 📄 Know about my experiences [Click here](https://drive.google.com/file/d/1X2NabKfsp_FzML5wzoRnhprS0sfY6Prz/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
